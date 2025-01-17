@@ -1,0 +1,1 @@
+# domasnee zadanie 8.2
